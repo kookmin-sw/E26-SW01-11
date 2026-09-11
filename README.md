@@ -1,4 +1,4 @@
-# Welcome to E26-SW01-11
+# Welcome to E26-SW01-11 - 11VERSE
 
 ## 🎯 팀 슬로건
 
